@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Next JS, DSA**
 
-- 👯 I’m looking to collaborate on **React based Open Source Frameworks**
+- 🙋🏻 I’m looking to collaborate on **React based Open Source Frameworks**
 
 - 🤝 I’m looking for a fellow developer to **Work with me on projects**
 
