@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available [@Navayuvan-SB](github.com/Navayuvan-SB)
 
-- 💬 Ask me about **Science and Technology 😆**, you can't shut my mouth!
+- 💬 Ask me about **Science and Technology 😆**, you can't stop me talking!
 
 - ⚡ Fun fact **Development Language may differ, but the concepts will be the same.**
 
