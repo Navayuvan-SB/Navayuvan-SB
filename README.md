@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for a fellow developer to **Work with me on projects**
 
-- 👨‍💻 All of my projects are available [@Navayuvan-SB](github.com/Navayuvan-SB)
+- 👨‍💻 All of my projects are available [@Navayuvan-SB](https://github.com/Navayuvan-SB)
 
 - 💬 Ask me about **Science and Technology 😆**, you can't stop me talking!
 
