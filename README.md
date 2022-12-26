@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Science and Technology 😆**, you can't stop me talking!
 
-- ⚡ Fun fact **Development Language may differ, but the concepts will be the same.**
+- ⚡ Fun fact - Focus on learning the concepts, because **development Language may differ, but the concepts will be the same.**
 
 
 ---
